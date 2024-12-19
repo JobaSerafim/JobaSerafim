@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @JobaSerafim
+- 👀 I’m interested in find a job
+- 🌱 I’m currently learning HTML/CSS
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: I'm a Christian, I have a 1 year old baby, and I practice jijiutsu
